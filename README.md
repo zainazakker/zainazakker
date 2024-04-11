@@ -1,7 +1,8 @@
 • ✨ Hey I'm ZAINA ZAKKER.  
 - 👀 I’m interested in 
-- 🌱 I’m currently doing MCA
-- 📫 How to reach me 
+• 🎓 I'm Currently doing MCA.             
+• 🌱 Strong background in Data science.
+- 📫  Reach me on IG -> zai_na._
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
