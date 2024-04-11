@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🎓 I'm Currently doing MCA.             
 - 🌱 Strong background in Data science.
-- 📫  Reach me on IG -> zai_na._
+- 📫  Reach me on zainazakker66@gmail.com
 - ⚡ Love to watch zombie,Thriller series
 
 
