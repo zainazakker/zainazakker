@@ -3,8 +3,7 @@
 - 🎓 I'm Currently doing MCA.             
 - 🌱 Strong background in Data science.
 - 📫  Reach me on IG -> zai_na._
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:Love to watch zombie,Thriller series
 
 
 
