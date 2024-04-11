@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zainazakker
+• ✨ Hey I'm ZAINA ZAKKER.  
 - 👀 I’m interested in 
 - 🌱 I’m currently doing MCA
 - 📫 How to reach me 
